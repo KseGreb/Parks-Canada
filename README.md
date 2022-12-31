@@ -7,7 +7,7 @@ kjbhkb,mm nlknl
 kjhvkbjhnnlkjnlnl
 oinokjmlm
 лотlhbkjknninikjhn
-рищгшдkjnknblonl;l;mnbm
+рищгшдkjnknblonl;l;mnbm,njb,n
 гмщгшиkjhklhnkjnn
 пмгщмkjhbknolmlmkm;mbkbkжльжь
 ргщмпгщишопоридоkjnljnl
