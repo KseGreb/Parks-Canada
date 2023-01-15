@@ -4,7 +4,7 @@ knll'nln'ln
 шдррm;m
 pojpij
 kjbhkb,mm nlknl
-kjhvkbjhnnlkjnlnl..cl.kn c.
+kjhvkbjhnnlkjnlnl..cl.kkhjn c.
 oinokjmlm
 лотlhbkjknninikjhn
 рищгшдkjnknblonl;l;mnbm,njb,n
