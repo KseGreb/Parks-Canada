@@ -12,7 +12,7 @@ oinokjmlmuhohll
 пмгщмkjhbknolmlmkm;mbkbkжльжьhnikni
 ргщмпгщишопоридоkjnljnlmhbmlinlnlml;mnln
 khgkvblnjnlnkijomj
-oijoo;jp;mknlnln
+oijoo;jp;mknlnlnKJNKN
 ормгшмнсмпрojpojpoj
 kjbukjlnhlihlinjlh
 kjbkjln
