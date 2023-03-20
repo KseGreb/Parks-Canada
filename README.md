@@ -15,7 +15,7 @@ khgkvblnjnlnkijomjkn;n
 oijoo;jp;mknlnlnKJNKNlkmlmlm
 ормгшмнсмпрojpojpoj
 kjbukjlnhlihlinjlh
-kjbkjln
+kjbkjlnlk
 ojojkljnk;n;kn;kn
 lkjmlmlmlKBHKBKN
 lkmlm;lkn;n;n
