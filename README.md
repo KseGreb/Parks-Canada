@@ -6,7 +6,7 @@ pojpijmjbhgvibkuvbkvh
 kjbhkb,mm nlknl
 kjhvkbjhnnlkjnlnl..cllml.kkhjn c.jmlmkmkl
 oinokjmlmuhohllojnon;km;m
-лотlhbkjknninikjhnlkmllknkl;nl l
+лотlhbkjknninikjhnlkmllknkl;nl lkjnl
 рищгшдkjnknbkjkjnlonl;l;mnbm,njb,n
 гмщгшиkjhklhnkjnnhkhkjkml;ml;;l,;l,mp;m
 пмгщмkjhbknolmlmkm;mbkbkжльжьhnikni
