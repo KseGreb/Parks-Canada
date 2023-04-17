@@ -11,7 +11,7 @@ oinokjmlmuhohllojnon;km;m
 гмщгшиkjhklhnkjnnhkhkjkml;ml;;l,;l,mp;m
 пмгщмkjhbknolmlmkm;mbkbkжльжьhniknikkb
 ргщмпгщишопоридоkjnljnlmhbmlinlnlml;mnln
-khgkvblnjnlnkijomjkn;n
+khgkvblnjnlnkijomjkn;nlknlm
 oijoo;jp;mknlnlnKJNKNlkmlmlmlkmlm
 ормгшмнсмпрojpojpojjjnlnln
 kjbukjlnhlihlinjlhkjbkb,lj
