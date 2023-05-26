@@ -6,8 +6,7 @@
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
     <title>National Parks of Canada</title>
     <link rel="stylesheet" href="style.css">
-</head>
-    
+</head>  
 <body>
     <div class="heading">
         <h1>🇨🇦 National Parks of Canada 🇨🇦</h1>
