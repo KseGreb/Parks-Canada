@@ -8,7 +8,6 @@
     <link rel="stylesheet" href="style.css">
 </head>  
 <body>
-    
     <div class="heading">
         <h1>🇨🇦 National Parks of Canada 🇨🇦</h1>
     </div>
