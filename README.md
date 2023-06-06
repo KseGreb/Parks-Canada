@@ -11,7 +11,6 @@
     <div class="heading">
         <h1>🇨🇦 National Parks of Canada 🇨🇦</h1>
     </div>
-
     <div class="search">
         <input type="text" id="input" placeholder="Search park here...">
     </div>
