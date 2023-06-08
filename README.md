@@ -14,7 +14,6 @@
     <div class="search">
         <input type="text" id="input" placeholder="Search park here...">
     </div>
-
     <div class="container">
         <div class="card">
             <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/Mealy_Mountains_Labrador_1.jpg/350px-Mealy_Mountains_Labrador_1.jpg" alt="Akami-Uapishkᵘ-KakKasuak-Mealy Mountains (Reserve)" >
